@@ -1,0 +1,1 @@
+This is an ongoing personal project that I decided to work on not too long ago. I've always really enjoy fictional media, and the idea of creating objects from these media's I enjoy has been a huge driving factor in continuing my education. This is one of many to come and after I complete this prototype I plan to come back an improve it.
